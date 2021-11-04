@@ -9,14 +9,6 @@
 ### Connect with me:
 [Connect with me on LinkedIn](https://www.linkedin.com/in/trevinwoods4778661aa)
 
-<br />
-
-[Connect with me on Facebook](https://https://www.facebook.com/trevin.woods.9/)
-
-<br />
-
-[Connect with me on AngelList](https://https://angel.co/u/trevin-woods)
-
 
 ### Languages and Tools:
 
