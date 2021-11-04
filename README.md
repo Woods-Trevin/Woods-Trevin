@@ -7,4 +7,4 @@
 - 🥅 2022 Goals: Become more established in the industry. Join a great team looking for an individual that can contribute right away.
 
 ### Connect with me:
-[website]
+[LinkedIn](www.linkedin.com/in/trevinwoods4778661aa)
